@@ -1,5 +1,5 @@
 # JUMP EUROPE ⚡️
-This is The Official GitHub of JUMP 
+This is the Official GitHub of JUMP 
 
 🌍 Global HR Services | 🧠 AI | 🚀 LinkedIn | 🤖 CV 
 
@@ -26,5 +26,5 @@ JUMP have success stories in Europe, Latam and North America. 🌎🚀
 [![WhatsApp](https://img.shields.io/badge/WhatsApp-darkgrey?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/+34671416020)
 ---
 
-# 🤝 Follow Me
+# 🤝 Let's Conect!
 
