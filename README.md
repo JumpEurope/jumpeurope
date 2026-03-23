@@ -20,11 +20,11 @@ JUMP have success stories in Europe, Latam and North America.
 
 ## 📝 Jump | Consultancy Services
 
-[![Job Easy Apply](https://img.shields.io/badge/Job%20Easy_Apply-2F2F2F?style=for-the-badge&logoColor=white)](https://forms.gle/dxWngJ2hWkkaXRbp9) &nbsp;
-[![Jump Instagram](https://img.shields.io/badge/Jump%20Instagram-2F2F2F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/jump_europe) &nbsp;
-[![Jump LinkedIn](https://img.shields.io/badge/Jump%20LinkedIn-2F2F2F?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/company/jump-europe/services/request-proposal/) &nbsp;
+[![Job Easy Apply](https://img.shields.io/badge/Job%20Easy_Apply-2F2F2F?style=for-the-badge&logoColor=white)](https://forms.gle/dxWngJ2hWkkaXRbp9) 
+[![Jump Instagram](https://img.shields.io/badge/Jump%20Instagram-2F2F2F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/jump_europe) 
+[![Jump LinkedIn](https://img.shields.io/badge/Jump%20LinkedIn-2F2F2F?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/company/jump-europe/services/request-proposal/)
 [![WhatsApp](https://img.shields.io/badge/WhatsApp-darkgrey?style=for-the-badge&logo=whatsapp&logoColor=white)](https://wa.me/+34671416020)
 ---
 
-# 🤝 Let's Conect!
+# 🤝 Let's Connect!
 
