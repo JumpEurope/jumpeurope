@@ -1,11 +1,11 @@
 # JUMP EUROPE ⚡️
 This is the Official GitHub of JUMP 
 
-🌍 Global HR Services | 🧠 AI | 🚀 LinkedIn | 🤖 CV 
+🌍 Global HR Services  |  🧠  AI  |  🚀 LinkedIn  |  🤖 CV 
 
 We connect local talent with challenging global Job opportunities. JUMP is a trusted strategic partner in professional career development and in accelerating the job search process through digital tools. Our approach combines personalized strategies with innovative technology to help dreamers go global, strengthen their profiles, and access better job opportunities—faster.
 Whether you're looking to advance in your current field, pivot into a new industry, or embrace Remote work, we provide the guidance and resources you need to move forward with confidence and clarity.
-JUMP have success stories in Europe, Latam and North America. 🌎🚀
+JUMP have success stories in Europe, Latam and North America. 
 
 ---
 
